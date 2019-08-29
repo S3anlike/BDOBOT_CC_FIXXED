@@ -1,6 +1,6 @@
 Only Fishing fixed, no time atm for more!
 
-Any issues please report to the discord at: https://discord.gg/hj6jPrW
+Any issues please report to the discord at: https://discord.gg/5m8TgGg
 
 ## CrayonCode-Wiki
 
